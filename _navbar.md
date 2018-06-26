@@ -1,3 +1,3 @@
 * 🙈 About the Author
-  * [Blog](https://ripperhe.com)
-  * [GitHub](https://github.com/ripperhe)
+  * [🤸‍♂️ Blog](https://ripperhe.com)
+  * [🧗‍♂️ GitHub](https://github.com/ripperhe)
